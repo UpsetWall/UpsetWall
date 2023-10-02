@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @UpsetWall
 - 👀 I’m interested in penetration testing
-- 🌱 I’m currently learning about sm17-010
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning about ✨The adult world✨ (help)
+- 💞️ I’m looking to collaborate on ... etb2
 - 📫 How to reach me discord UpsetWall#1433
 
 <!---
